@@ -41,6 +41,6 @@ We reserve the right to update this Privacy Policy at any time. We will notify y
 
 ## Contact
 
-If you have any questions about this Privacy Policy, please contact us at [contact email].
+If you have any questions about this Privacy Policy, please contact us at celestemotivation@gmail.com.
 
 Last updated: 20 April 2024
